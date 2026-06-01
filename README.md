@@ -1,1 +1,1 @@
-
+I really dislike people who keep begging for skins even after I've politely turned them down. Because of them, I've developed a negative view toward anyone asking for skins now. Do not message me privately for any reason, especially if it's to ask for skin.
